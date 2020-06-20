@@ -37,6 +37,7 @@
 * Chicco 草本防蚊滾珠 60ml
 
 ## 成長玩具
+* Mamas & Papas 巴巴里獅的臉書
 * BABY BANANA 心型香蕉安全牙刷
 * Pigeon 嘴唇訓練固齒器
 * B.Toys 小丑動物園
