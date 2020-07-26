@@ -29,6 +29,9 @@
 * JoJo Maman BeBe 矽膠防掉落食物袋圍兜
 * Cuisinart 美膳雅全方位調理手持式攪拌棒 (CSB-80TW)
 * Dooby 大眼蛙 神奇喝水杯
+* eLipseKids 幼兒Easy學習吸盤碗
+* OXO tot 寶寶握叉匙組
+* 3M Scotch 萬用食物剪刀
 
 ## 安全防護
 * Flippa Apramo 折疊餐椅兒童餐椅
