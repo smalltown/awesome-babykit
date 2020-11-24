@@ -23,6 +23,7 @@
 * 柔仕 MIT 乾濕兩用紗布毛巾
 * Green Sprouts 三層口水巾圍兜
 * Pigeon 嬰兒乳牙訓練牙刷套組
+* 麗貝樂尿布
 
 ## 飲食調理
 * Dr. Brown's 防脹氣奶瓶
