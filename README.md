@@ -11,6 +11,7 @@
   - [安全防護](#安全防護)
   - [成長玩具](#成長玩具)
   - [穿戴用品](#穿戴用品)
+  - [其他](#其他)
 
 ## 衛生清潔
 * Grahams 嬰兒異敏屁屁霜100ml (屁屁膏)
@@ -18,6 +19,7 @@
 * Shnuggle 月亮澡盆
 * Combi Pro 高效消毒烘乾鍋
 * Combi 親子電動磨甲機
+* VANRRO Babynice 兒童電動指甲剪
 * 柔仕 MIT 乾濕兩用紗布毛巾
 * Green Sprouts 三層口水巾圍兜
 * Pigeon 嬰兒乳牙訓練牙刷套組
@@ -31,7 +33,7 @@
 * Dooby 大眼蛙 神奇喝水杯
 * eLipseKids 幼兒Easy學習吸盤碗
 * OXO tot 寶寶握叉匙組
-* 3M Scotch 萬用食物剪刀
+* KIDS CLUB 隨身料理食物剪刀
 
 ## 安全防護
 * Flippa Apramo 折疊餐椅兒童餐椅
@@ -51,3 +53,6 @@
 ## 穿戴用品
 * 3M 新絲舒眠小寶貝冬夏兩用被
 * 可諾帕 MIT 12~24 個月嬰兒厚底止滑短襪
+
+## 其他
+* Easywalker MINI BUGGY XS
