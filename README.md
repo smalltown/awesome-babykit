@@ -23,6 +23,7 @@
 * 柔仕 MIT 乾濕兩用紗布毛巾
 * Green Sprouts 三層口水巾圍兜
 * Pigeon 嬰兒乳牙訓練牙刷套組
+* FLOSSY 木醣醇兒童安全牙線棒
 * 麗貝樂尿布
 
 ## 飲食調理
@@ -31,7 +32,7 @@
 * Pigeon 軟質安全湯匙
 * JoJo Maman BeBe 矽膠防掉落食物袋圍兜
 * Cuisinart 美膳雅全方位調理手持式攪拌棒 (CSB-80TW)
-* Dooby 大眼蛙 神奇喝水杯
+* 澳洲 bbox 學習水杯
 * eLipseKids 幼兒Easy學習吸盤碗
 * OXO tot 寶寶握叉匙組
 * KIDS CLUB 隨身料理食物剪刀
